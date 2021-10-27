@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Rasenmaeeher
+- 👀 I’m interested in mechanics, coding
+- 🌱 I’m currently learning mechanics
